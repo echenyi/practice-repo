@@ -1,3 +1,3 @@
 # Practice
 
-## Ndop is the place
+## Ndop is the place with rice fields
